@@ -3,3 +3,5 @@
 
 
 https://dayvisonserafim.github.io/clone-home-spotify/
+
+Direitos de imagem para spotify
